@@ -16,3 +16,4 @@
 
 📫 **How to reach me:**
 - GitHub: [Apostolos33](https://github.com/Apostolos33)
+- **LinkedIn:** [Apostolos Vardimis](https://www.linkedin.com/in/apostolos-vardimis-4b00a3429/)
